@@ -1,3 +1,3 @@
-# hello-world
+# hello-world.
 
 I am Roben Bamutesiza, an ambitious, curious, and open-minded young man who believes in becoming better every day. I love technology, computers, and learning new languages. I enjoy exploring different cultures, meeting new people, and challenging myself with new experiences. My missionary service in the Philippines taught me valuable lessons about faith, patience, discipline, and independence. I have big dreams of studying abroad, building a successful career in IT, and becoming financially independent. I am not perfect, and I still have a lot to learn, but I am determined to grow, overcome my weaknesses, and become a man who is respected, loved, and successful in life.
